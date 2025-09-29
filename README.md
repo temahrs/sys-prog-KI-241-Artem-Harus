@@ -1,0 +1,1 @@
+# sys-prog-KI-221-Artem-Harus
